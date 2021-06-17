@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1.I like myself 💙
+2.I am unique ✨
+3.So I am Happy 😸
